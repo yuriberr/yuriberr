@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yuriberr
+- 👀 I’m interested in technology and football (soccer)
+- 🌱 I’m currently learning Python and Power BI
+- 📫 How to reach me: yuriberr52@gmail.com
+- ⚡ Fun fact: Some people call me PlayStation, because of a host of a TV show named as Yudi. He used to give away some PlayStations 😅
